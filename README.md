@@ -1,2 +1,2 @@
 # appdev
-bahala ka na sa description
+ewan ko
